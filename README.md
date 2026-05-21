@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **paramnama15@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Ol41CuJX_d3ZzH_b0mS_Z4tGF6uz52P4/view?usp=drive_link](https://drive.google.com/file/d/1Ol41CuJX_d3ZzH_b0mS_Z4tGF6uz52P4/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1vkCtJViRER4AwAQSp_a6c8G4TLltt6D3/view?usp=drive_link](https://drive.google.com/file/d/1vkCtJViRER4AwAQSp_a6c8G4TLltt6D3/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
